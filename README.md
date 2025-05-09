@@ -2,7 +2,7 @@
 
 ![tumblr_1f578f7083aa90ce2c3b769c8ff77783_8b977134_640](https://github.com/user-attachments/assets/7ca7579c-c287-4b3b-919e-bfaa9e98f3db)
 
-hello ! ! looking for a cutie #friends (ˉ﹃ˉ)
+hello ! ! looking for a cutie #friends or maybe #relationship (ˉ﹃ˉ)
  you can call me amelia/amey : enfj 3w2 
 
 ◟main fandoms ⋮
